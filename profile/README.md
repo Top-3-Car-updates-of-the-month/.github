@@ -14,4 +14,4 @@ The Next Gen BMW iX Electric SUV is now announced to launch soon. The main thing
 ## Suzuki Jimny Nomade to launch in Japan
 
 Suzuki itself is a Japanese car maker that is under cooperation with Indian Maruti. Now Suzuki has planned to launch a five-door version of the Maruti Suzuki Jimny as the Suzuki Jimny Nomade. It will be made in India and sold in Japan. The main thing about this is that it's the first time ever in the 55-year history of the Jimny (Gypsy) that its five-door version is going to be launched in its homeland, Japan. The car will sport the same K15B three-cylinder engine that produces 109 brake horsepower and 136 Newton meters of torque. The Jimny Nomade car will have a four-wheel drive (4WD) option as standard and will have five-speed manual and four-speed automatic transmission gearboxes.
-[Read auto news articles on news post one](https://www.newspostone.co/search/label/Automobile?m=1)
+[Read news articles on news post one](https://www.newspostone.co/?m=1)
